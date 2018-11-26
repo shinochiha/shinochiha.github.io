@@ -1,3 +1,3 @@
-# CV Adi Aswara
+# Fitra Aziz Al - Rasyid
 ## Demo
-### https://cvaswara.netlify.com/
+### 
